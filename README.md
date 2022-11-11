@@ -19,5 +19,5 @@ Os primeiros africanos trazidos para o Brasil como escravos chegaram aqui em 153
 
 
 
-![20171120-consciencia-negra](https://user-images.githubusercontent.com/113718149/201416946-417b20e3-92f0-4632-b291-511a2f3a37e7.png)
+
 
