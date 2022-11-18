@@ -6,7 +6,7 @@ O Dia da Consciência Negra é celebrado em 20 de novembro no Brasil e é dedica
 História do Dia da Consciência Negra.
 
 As diversas nações africanas não se reconheciam como negros, e sim como Bantos, Haúças, Niams, Fulas, Kanembus, etc.
-Os primeiros africanos trazidos para o Brasil como escravos chegaram aqui em 1532, e o fim do tráfico negreiro deu-se em 1850 pela Lei Eusébio de Queiroz.Após a abolição formal da escravidão no dia 13 de maio de 1888, a busca pela igualdade por direitos dos negros jamais cessou.A discriminação, sentida em todas as áreas, tornou o negro excluído da sociedade, da educação e consequentemente, do mercado de trabalho.Essa exclusão, através de muita luta, foi diminuindo aos poucos, e o negro foi encontrando lugar nos esportes e artes, mas não tinha acesso à universidade, por exemplo.Deste modo, era preciso um dia para lembrar desta manifestação constante que os negros realizam, para serem aceitos da mesma forma que os brancos no Brasil
+Os primeiros africanos trazidos para o Brasil como escravos chegaram aqui em 1532, e o fim do tráfico negreiro deu-se em 1850 pela Lei Eusébio de Queiroz.Após a abolição formal da escravidão no dia 13 de maio de 1888, a busca pela igualdade por direitos dos negros jamais cessou.A discriminação, sentida em todas as áreas, tornou o negro excluído da sociedade, da educação e consequentemente, do mercado de trabalho.Essa exclusão, através de muita luta, foi diminuindo aos poucos, e o negro foi encontrando lugar nos esportes e artes, mas não tinha acesso à universidade, por exemplo.Deste modo, era preciso um dia para lembrar desta manifestação constante que os negros realizam, para serem aceitos da mesma forma que os brancos no Brasil.
 
 
 
